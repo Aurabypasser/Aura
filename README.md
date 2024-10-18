@@ -4,6 +4,8 @@ What is the work of bypasser? It is used to bypass the gateway. Its work is to m
 
 # How yo install
 
+# - video tutorial - https://t.me/aurabypasser/751
+
 🌟 **Aura Bypasser**: Unlock the Gateway to Success! 🚀
 
 🛠 **Register Now** and take the leap: [http://88.222.242.169/](http://88.222.242.169/)
