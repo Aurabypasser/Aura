@@ -9,11 +9,11 @@ https://t.me/aurabypasser/751
 
 🌟 **Aura Bypasser**: Unlock the Gateway to Success! 🚀
 
-🛠 **Register Now** and take the leap: [http://88.222.242.169/](http://88.222.242.169/)
+🛠 **Register Now** and take the leap: (http://93.127.172.200/)
 
 📝 **Step-by-Step Guide**:
 
-1. **Register**: Start by registering using the (http://88.222.242.169/) above.
+1. **Register**: Start by registering using the (http://93.127.172.200/) above.
    
 3. **Login**: Once registered, log in to your account.
    
